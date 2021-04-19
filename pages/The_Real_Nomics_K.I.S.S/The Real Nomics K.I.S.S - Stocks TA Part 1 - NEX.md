@@ -1,1 +1,2 @@
-https://clips.twitch.tv/EnergeticFragilePonyTwitchRPG-TwOGrXA67204qpeM
+#The Real Nomics: K.I.S.S - Stocks TA Part 1 - NEX.md
+https://clips.twitch.tv/EnergeticFragilePonyTwitchRPG-TwOGrXA67204qpeM

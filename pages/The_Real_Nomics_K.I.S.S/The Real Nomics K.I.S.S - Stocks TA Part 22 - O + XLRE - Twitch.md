@@ -1,1 +1,2 @@
-https://clips.twitch.tv/FamousComfortableLegGingerPower-vxg11xPvjo3D_tlb
+#The Real Nomics: K.I.S.S - Stocks TA Part 22 - O + XLRE - Twitch.md
+https://clips.twitch.tv/FamousComfortableLegGingerPower-vxg11xPvjo3D_tlb
